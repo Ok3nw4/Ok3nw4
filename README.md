@@ -27,7 +27,7 @@
  
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
  
-- ➪ 𝙽𝙰𝙼𝙴 :- ＪＵＳＴＩＮ －M E H E D I 3 6 4
+- ➪ 𝙽𝙰𝙼𝙴 :- OKENWA-BRIGHT
  
  
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
@@ -47,11 +47,11 @@
  
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
  
-- 🤲🏻 𝚁𝙴𝙻𝙸𝙶𝙸𝙾𝙽 :- ＩＳＬＡＭ
+- 🤲🏻 𝚁𝙴𝙻𝙸𝙶𝙸𝙾𝙽 :- CHRISTIAN
  
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
  
-- ➪ 𝙵𝙰𝙲𝙴𝙱𝙾𝙾𝙺 :- [Ok3nw4](https://www.facebook.com/okenwa.bright24)
+- ➪ 𝙵𝙰𝙲𝙴𝙱𝙾𝙾𝙺 :- [Okenwa Bright](https://www.facebook.com/okenwa.bright24)
  
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
  
@@ -60,17 +60,17 @@
  
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
  
-- ➪ 𝙵𝙰𝙲𝙴𝙱𝙾𝙾𝙺 𝙶𝚁𝚄𝙿 :- [ M e h e d i 3 6 4
+- ➪ 𝙵𝙰𝙲𝙴𝙱𝙾𝙾𝙺 𝙶𝚁𝚄𝙿 :- [OKENWA TERMUX ARENA
 ](https://www.facebook.com/groups/838819216128867)
  
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
  
-- ➪ 𝙸𝙽𝚂𝚃𝙰𝙶𝚁𝙰𝙼 :- [ Okenwa Bright 
+- ➪ 𝙸𝙽𝚂𝚃𝙰𝙶𝚁𝙰𝙼 :- [ Choco Milo 
 ](https://www.instagram.com/meet_mercii/)
  
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
  
-- ➪ 𝚈𝙾𝚄𝚃𝚄𝙱𝙴 :- [ Mehedi364 3Dot
+- ➪ 𝚈𝙾𝚄𝚃𝚄𝙱𝙴 :- [ Technical Okenwa
 ](https://youtube.com/channel/UC6y1gQO754SIdQWdQthPKXw)
  
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
