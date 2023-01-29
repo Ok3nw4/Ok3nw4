@@ -15,7 +15,7 @@
 <h3><b><i>🏆 Github Statistics :</i></b></h3>
  
  
- ＶＩＳＩＴＯＲＳ ＣＯＵＮＴ
+ ＶＩＳＩＴＯＲＳ ＣＯＵＮ＄1�7
  <img src="https://profile-counter.glitch.me/Ok3nw4/count.svg" />
 </p>
  
@@ -27,7 +27,7 @@
  
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
  
-- ➪ 𝙽𝙰𝙼𝙴 :- OKENWA-BRIGHT
+- ➄1�7 𝙽𝙰𝙼𝙴 :- OKENWA-BRIGHT
  
  
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
@@ -51,40 +51,41 @@
  
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
  
-- ➪ 𝙵𝙰𝙲𝙴𝙱𝙾𝙾𝙺 :- [Okenwa Bright](https://www.facebook.com/okenwa.bright24)
+- ➄1�7 𝙵𝙰𝙲𝙴𝙱𝙾𝙾𝙺 :- [Okenwa Bright](https://www.facebook.com/okenwa.bright24)
  
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
  
-- ➪𝙵𝙰𝙲𝙴𝙱𝙾𝙾𝙺  𝙵𝙰𝙶𝙴 :- [Ok3nw4 
+- ➪𝙵𝙰𝙲𝙴𝙱𝙾𝙾𝙄1�7  𝙵𝙰𝙶𝙴 :- [Ok3nw4 
 ](https://www.facebook.com/profile.php?id=100077215866186)
  
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
  
-- ➪ 𝙵𝙰𝙲𝙴𝙱𝙾𝙾𝙺 𝙶𝚁𝚄𝙿 :- [OKENWA TERMUX ARENA
+- ➄1�7 𝙵𝙰𝙲𝙴𝙱𝙾𝙾𝙺 𝙶𝚁𝚄𝙿 :- [OKENWA TERMUX ARENA
 ](https://www.facebook.com/groups/838819216128867)
  
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
  
-- ➪ 𝙸𝙽𝚂𝚃𝙰𝙶𝚁𝙰𝙼 :- [ Choco Milo 
+- ➄1�7 𝙸𝙽𝚂𝚃𝙰𝙶𝚁𝙰𝙼 :- [ Choco Milo 
 ](https://www.instagram.com/meet_mercii/)
  
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
  
-- ➪ 𝚈𝙾𝚄𝚃𝚄𝙱𝙴 :- [ Technical Okenwa
+- ➄1�7 𝚈𝙾𝚄𝚃𝚄𝙱𝙴 :- [ Technical Okenwa
 ](https://youtube.com/channel/UC6y1gQO754SIdQWdQthPKXw)
  
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
  
-- ➪ 𝚅𝙸𝚁𝚃𝚄𝙰𝙻 ⁂ Ｊｕｓｔ Ｔｉｍｅ Ｐａｓｓ
-✰
+- ➄1�7 𝚅𝙸𝚁𝚃𝚄𝙰𝙻 ⁄1�7 Ｊｕｓｔ Ｔｉｍｅ Ｐａｓｓ
+✄1�7
 ////
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
  
 <h2><img width="28" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/icons/icon-contact.png" /><i> Connect With Me:</i></h2>
  
-[![Instagram](https://img.shields.io/badge/𝙸𝙽𝚂𝚃𝙰𝙶𝚁𝙰𝙼-red?style=for-the-badge&logo=instagram)](https://www.instagram.com/meet_mercii/)
+[![Instagram](https://img.shields.io/badge/𝙸𝙽𝚂𝚃𝙰𝙶𝚁𝙰𝙼-red?style=for-the-badge&logo=instagram)](https://www.instagram.com/savage_fundz01/)
 [![Facebook](https://img.shields.io/badge/𝙵𝚊𝚌𝚎𝚋𝚘𝚘𝚔-green?style=for-the-badge&logo=facebook)](https://www.facebook.com/okenwa.bright24)
-[![Fb Page](https://img.shields.io/badge/𝙼𝙴𝚂𝚂𝙴𝙽𝙶𝙴𝚁-blue?style=for-the-badge&logo=messenger)](https://www.facebook.com/100077215866186)
+[![WhatsApp][![](https://img.shields.io/badge/Whatsapp-CHAT-red?logo=Whatsapp&logoColor=Brightgreen&labelColor=white)](https://wa.me/+2347061758885?text=Hello+OKENWA)
+[![WhatsApp Group][![](https://img.shields.io/badge/Whatsapp-CHAT-red?logo=Whatsapp&logoColor=Brightgreen&labelColor=white)](https://chat.whatsapp.com/J9yuomFu406ExZH6ZnbEni)
  
 ### ⚙️   𝙻𝚊𝚗𝚐𝚞𝚊𝚐𝚎 & 𝙿𝚛𝚘𝚐𝚛𝚊𝚖𝚖𝚒𝚗𝚐
  
